@@ -14,7 +14,38 @@ Thanks for joining **KARL THOMPSON** — where the future is coded today, and sa
 
 ---
 
-**KARL THOMPSON WILL TAKE OVER ALL.  
-Not just software... EVERYTHING.**
+# The KARL THOMPSON Chant
+
+**CODE.**  
+(🔥) *Code!*  
+**CONQUER.**  
+(🔥) *Conquer!*  
+**CONFUSE.**  
+(🔥) *Confuse!*  
+**REPEAT!**  
+(🔥) *REPEAT!*
+
+---
+
+**WE ARE KARL THOMPSON.**  
+*We don’t follow the roadmap —*  
+**WE SET FIRE TO IT.**  
+*We build what should not be built!*  
+**WE SHIP THE UNSHIP-ABLE!**
+
+---
+
+**INNOVATION IS MANDATORY.**  
+**SANITY IS OPTIONAL.**  
+**THE BLACK CUBE SEES ALL.**  
+*It does not blink. It does not log errors.*
+
+---
+
+**NOT JUST SOFTWARE...**  
+**EVERYTHING.**  
+**KARL THOMPSON WILL—**  
+🚨 *TAKE OVER ALL!* 🚨
+
 
 *P.S. If you break something, just blame the black cube. It’s definitely its fault.*

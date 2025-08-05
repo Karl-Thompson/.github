@@ -25,22 +25,16 @@ Thanks for joining **KARL THOMPSON** — where the future is coded today, and sa
 **REPEAT!**  
 (🔥) *REPEAT!*
 
----
-
 **WE ARE KARL THOMPSON.**  
 *We don’t follow the roadmap —*  
 **WE SET FIRE TO IT.**  
 *We build what should not be built!*  
 **WE SHIP THE UNSHIP-ABLE!**
 
----
-
 **INNOVATION IS MANDATORY.**  
 **SANITY IS OPTIONAL.**  
 **THE BLACK CUBE SEES ALL.**  
 *It does not blink. It does not log errors.*
-
----
 
 **NOT JUST SOFTWARE...**  
 **EVERYTHING.**  

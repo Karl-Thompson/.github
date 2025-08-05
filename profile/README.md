@@ -1,4 +1,4 @@
-# Welcome to the KARL THOMPSON Dream Team 🚀
+# Welcome to KARL THOMPSON
 
 Welcome aboard **KARL THOMPSON**, where we don’t just build software — we build *everything* (and sometimes accidentally summon the black cube). This is the brain centre for all things brilliant, bizarre, and borderline absurd: every idea, every line of code, every pixel starts right here.
 
